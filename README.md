@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Shadrack S
+- 👀 I’m interested in CODING
+- 🌱 I’m currently learning WEB DEVOLPMENT
+- 💞️ I’m looking to collaborate in FREELANCE WORK 
+- 📫 How to reach me https://www.linkedin.com/in/shadrack-shibu-800236196/
